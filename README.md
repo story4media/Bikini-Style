@@ -32,6 +32,7 @@ Flattering for: Creates an elegant, retro look and provides a great lift for sma
 Description: A hybrid style that offers a sportier, more comfortable feel with a fuller, more substantial cup shape than a classic triangle top.
 Flattering for: Works well for a wide range of bust sizes, providing a balance of style and function. 
 
+---
 ## Bikini bottom styles and cuts
 
 ### High-waisted
