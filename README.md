@@ -25,45 +25,45 @@ Variations: Some feature a twisted or knotted front design.
 - Flattering for: Ideal for active wear, such as surfing or beach volleyball, and offers more sun protection. It is also flattering for athletic or rectangular body types. 
 
 ### Balconette
-Description: Inspired by lingerie, this style features underwire cups with wide-set straps that run horizontally across the breasts to create and accentuate cleavage.
-Flattering for: Creates an elegant, retro look and provides a great lift for smaller and larger busts alike. 
+- Description: Inspired by lingerie, this style features underwire cups with wide-set straps that run horizontally across the breasts to create and accentuate cleavage.
+- Flattering for: Creates an elegant, retro look and provides a great lift for smaller and larger busts alike. 
 
 ### Bralette
-Description: A hybrid style that offers a sportier, more comfortable feel with a fuller, more substantial cup shape than a classic triangle top.
-Flattering for: Works well for a wide range of bust sizes, providing a balance of style and function. 
+- Description: A hybrid style that offers a sportier, more comfortable feel with a fuller, more substantial cup shape than a classic triangle top.
+- Flattering for: Works well for a wide range of bust sizes, providing a balance of style and function. 
 
 ---
 ## Bikini bottom styles and cuts
 
 ### High-waisted
-Description: This retro-inspired cut sits at or above the navel, offering extra coverage for the tummy.
-Flattering for: Excellent for creating a vintage look, defining the waistline, and elongating the legs. Suitable for all body types, including those who want more tummy control.
-Variations: Some styles have a high-leg cut for a more modern feel. 
+- Description: This retro-inspired cut sits at or above the navel, offering extra coverage for the tummy.
+- Flattering for: Excellent for creating a vintage look, defining the waistline, and elongating the legs. Suitable for all body types, including those who want more tummy control.
+- Variations: Some styles have a high-leg cut for a more modern feel. 
 
 ### Hipster
-Description: Sits lower on the hips with a thicker waistband. Offers moderate-to-full back coverage.
-Flattering for: This low-rise style is a sporty and comfortable option that creates a balanced, curvy look, particularly for athletic builds. 
+- Description: Sits lower on the hips with a thicker waistband. Offers moderate-to-full back coverage.
+- Flattering for: This low-rise style is a sporty and comfortable option that creates a balanced, curvy look, particularly for athletic builds. 
 
 ### Tie-side
-Description: Features adjustable ties on the hips, making it one of the most customizable and versatile options.
-Flattering for: The ties can add a flirty detail and allow you to adjust the fit perfectly. 
+- Description: Features adjustable ties on the hips, making it one of the most customizable and versatile options.
+- Flattering for: The ties can add a flirty detail and allow you to adjust the fit perfectly. 
 
 ### Brazilian
-Description: A cheeky, high-cut style that reveals more of the buttocks with a Y-shaped seam at the back.
-Flattering for: Designed to accentuate and lift the natural curve of the bottom, making it a popular choice for confident sunbathers. 
+- Description: A cheeky, high-cut style that reveals more of the buttocks with a Y-shaped seam at the back.
+- Flattering for: Designed to accentuate and lift the natural curve of the bottom, making it a popular choice for confident sunbathers. 
 
 ### Cheeky
-Description: A "happy medium" between a full-coverage bottom and a thong. The V-shaped cut exposes the lower curve of the cheeks.
-Flattering for: Offers a flirty style while still providing slightly more coverage than a Brazilian or thong. 
+- Description: A "happy medium" between a full-coverage bottom and a thong. The V-shaped cut exposes the lower curve of the cheeks.
+- Flattering for: Offers a flirty style while still providing slightly more coverage than a Brazilian or thong. 
 
 ### Thong/G-string
-Description: Minimal coverage bottom with a thin strip of fabric in the back to reduce tan lines.
-Flattering for: The most minimal-coverage option for those who want a barely-there feel and minimal tan lines. 
+- Description: Minimal coverage bottom with a thin strip of fabric in the back to reduce tan lines.
+- Flattering for: The most minimal-coverage option for those who want a barely-there feel and minimal tan lines. 
 
 ### Boyshort
-Description: A square-cut style that offers maximum coverage for the thighs and rear.
-Flattering for: A comfortable and modest option, ideal for beach activities like sports. Can help balance out a pear-shaped figure by providing more coverage. 
+- Description: A square-cut style that offers maximum coverage for the thighs and rear.
+- Flattering for: A comfortable and modest option, ideal for beach activities like sports. Can help balance out a pear-shaped figure by providing more coverage. 
 
 ### High-leg
-Description: Features a leg opening that sits high on the hip bone, evoking a retro '80s and '90s vibe.
-Flattering for: This cut creates the illusion of longer legs and a slimmer silhouette. 
+- Description: Features a leg opening that sits high on the hip bone, evoking a retro '80s and '90s vibe.
+- Flattering for: This cut creates the illusion of longer legs and a slimmer silhouette. 
