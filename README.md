@@ -2,9 +2,9 @@
 
 ## Bikini top styles and cuts
 ### Halter neck
-- Description: This classic style features two wide, extended triangular cups with straps that tie behind the neck and back.
-- Flattering for: It is a great option for those with a fuller bust, as it offers extra lift and support while defining the cleavage.
-Variations: Can be found with underwire or padding for additional structure. 
+- **Description:** This classic style features two wide, extended triangular cups with straps that tie behind the neck and back.
+- **Flattering for:** It is a great option for those with a fuller bust, as it offers extra lift and support while defining the cleavage.
+- **Variations:** Can be found with underwire or padding for additional structure. 
 
 ### Triangle
 - Description: The iconic string bikini, with two sliding triangular cups that tie at the neck and back.
