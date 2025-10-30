@@ -22,7 +22,7 @@
 ### Underwire
 - **Description:** Built like a standard bra, this top has a built-in wire structure and often molded cups to provide exceptional lift and support.
 - **Flattering for:** Designed for women with larger busts who need more structure and support than a standard string or triangle top. 
-<p align="center"><img height="300" src="https://shopcasalina.com/products/fine-strap-wire-balconette-top"></p>
+<p align="center"><img height="300" src="https://www.selfieleslie.com/cdn/shop/files/SLSW005CHOC-1_1365x.jpg?v=1715926292"></p>
 
 ### Crop top/High-neck
 - **Description:** An athletic-inspired style with more coverage that resembles a crop top or high-neck sports bra.
