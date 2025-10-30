@@ -45,17 +45,17 @@
 - **Description:** This retro-inspired cut sits at or above the navel, offering extra coverage for the tummy.
 - **Flattering for:** Excellent for creating a vintage look, defining the waistline, and elongating the legs. Suitable for all body types, including those who want more tummy control.
 - **Variations:** Some styles have a high-leg cut for a more modern feel. 
-<p align="center"><img height="300" src=""></p>
+<p align="center"><img height="300" src="https://encrypted-tbn1.gstatic.com/licensed-image?q=tbn:ANd9GcRYb4TxoCTO6zzF2G9FYhVLl25caT0yfqFENaATuD-Up30HuHfDCnd7Bvp9OkMvBiaSdldVcF4dfpRkwf9VSdIy9mhgSQCzdQllBez5tuJbYeLHuPE"></p>
 
 ### Hipster
 - **Description:** Sits lower on the hips with a thicker waistband. Offers moderate-to-full back coverage.
 - **Flattering for:** This low-rise style is a sporty and comfortable option that creates a balanced, curvy look, particularly for athletic builds. 
-<p align="center"><img height="300" src=""></p>
+<p align="center"><img height="300" src="https://www.bergfreunde.eu/seafolly-womens-collective-twist-band-hipster-bikini-bottom/"></p>
 
 ### Tie-side
 - **Description:** Features adjustable ties on the hips, making it one of the most customizable and versatile options.
 - **Flattering for:** The ties can add a flirty detail and allow you to adjust the fit perfectly. 
-<p align="center"><img height="300" src=""></p>
+<p align="center"><img height="300" src="https://lh3.googleusercontent.com/gg-dl/ABS2GSlUXPIOfyHg72ZU_UVDmY4hL7aXbkT5Ze0d4H7ArYnwc_Up8-o2fesS_Wacs_VZEpili8wRk3esPv86VhgjomplIVJa0EMDU3HAAFlXflEJIbPi4YKTfTUpSgX1G4e129pmZZHPGv_eW-NsjDL9QdTtrxYnZg2-0ZAyoE03s9At6IWbEQ=s1024-rj"></p>
 
 ### Brazilian
 - **Description:** A cheeky, high-cut style that reveals more of the buttocks with a Y-shaped seam at the back.
