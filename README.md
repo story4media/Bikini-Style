@@ -2,27 +2,27 @@
 
 ## Bikini top styles and cuts
 ### Halter neck
-Description: This classic style features two wide, extended triangular cups with straps that tie behind the neck and back.
-Flattering for: It is a great option for those with a fuller bust, as it offers extra lift and support while defining the cleavage.
+- Description: This classic style features two wide, extended triangular cups with straps that tie behind the neck and back.
+- Flattering for: It is a great option for those with a fuller bust, as it offers extra lift and support while defining the cleavage.
 Variations: Can be found with underwire or padding for additional structure. 
 
 ### Triangle
-Description: The iconic string bikini, with two sliding triangular cups that tie at the neck and back.
-Flattering for: Best for smaller to medium busts, offering a natural and classic beach-babe look.
+- Description: The iconic string bikini, with two sliding triangular cups that tie at the neck and back.
+- Flattering for: Best for smaller to medium busts, offering a natural and classic beach-babe look.
 Variations: Modern versions may include textured fabrics, bolder prints, or ties with embellishments. 
 
 ### Bandeau
-Description: A strapless, band-shaped top that runs horizontally across the chest. Many styles come with removable straps for extra support.
-Flattering for: Great for those who want to avoid tan lines on their shoulders and neck. It can also create the illusion of a wider top half, balancing a pear-shaped figure.
+- Description: A strapless, band-shaped top that runs horizontally across the chest. Many styles come with removable straps for extra support.
+- Flattering for: Great for those who want to avoid tan lines on their shoulders and neck. It can also create the illusion of a wider top half, balancing a pear-shaped figure.
 Variations: Some feature a twisted or knotted front design. 
 
 ### Underwire
-Description: Built like a standard bra, this top has a built-in wire structure and often molded cups to provide exceptional lift and support.
-Flattering for: Designed for women with larger busts who need more structure and support than a standard string or triangle top. 
+- Description: Built like a standard bra, this top has a built-in wire structure and often molded cups to provide exceptional lift and support.
+- Flattering for: Designed for women with larger busts who need more structure and support than a standard string or triangle top. 
 
 ### Crop top/High-neck
-Description: An athletic-inspired style with more coverage that resembles a crop top or high-neck sports bra.
-Flattering for: Ideal for active wear, such as surfing or beach volleyball, and offers more sun protection. It is also flattering for athletic or rectangular body types. 
+- Description: An athletic-inspired style with more coverage that resembles a crop top or high-neck sports bra.
+- Flattering for: Ideal for active wear, such as surfing or beach volleyball, and offers more sun protection. It is also flattering for athletic or rectangular body types. 
 
 ### Balconette
 Description: Inspired by lingerie, this style features underwire cups with wide-set straps that run horizontally across the breasts to create and accentuate cleavage.
