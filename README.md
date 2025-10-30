@@ -17,12 +17,12 @@
 - **Description:** A strapless, band-shaped top that runs horizontally across the chest. Many styles come with removable straps for extra support.
 - **Flattering for:** Great for those who want to avoid tan lines on their shoulders and neck. It can also create the illusion of a wider top half, balancing a pear-shaped figure.
 - **Variations:** Some feature a twisted or knotted front design. 
-<p align="center"><img height="300" src=""></p>
+<p align="center"><img height="300" src="https://encrypted-tbn0.gstatic.com/licensed-image?q=tbn:ANd9GcRkbe7eTqKpCw0cqGfEDzWF-Sh88ek9XGYAqrjbxrOw7ia1WbnqLA6RGnhK9snRIVC4iZ2ItGa1EAk-S47V0lp_krSIIkl5IMBbFK1FOhZjGcq2epk"></p>
 
 ### Underwire
 - **Description:** Built like a standard bra, this top has a built-in wire structure and often molded cups to provide exceptional lift and support.
 - **Flattering for:** Designed for women with larger busts who need more structure and support than a standard string or triangle top. 
-<p align="center"><img height="300" src=""></p>
+<p align="center"><img height="300" src="https://shopcasalina.com/products/fine-strap-wire-balconette-top"></p>
 
 ### Crop top/High-neck
 - **Description:** An athletic-inspired style with more coverage that resembles a crop top or high-neck sports bra.
