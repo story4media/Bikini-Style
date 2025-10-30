@@ -32,7 +32,7 @@
 ### Balconette
 - **Description:** Inspired by lingerie, this style features underwire cups with wide-set straps that run horizontally across the breasts to create and accentuate cleavage.
 - **Flattering for:** Creates an elegant, retro look and provides a great lift for smaller and larger busts alike. 
-<p align="center"><img height="300" src=""></p>
+<p align="center"><img height="300" src="https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcSi00iC74Z4fP6pi0EK6RS2lIBRuy01E9k6SRoIKD8F5hz9wYqSV2lhnAAszM3i"></p>
 
 ### Bralette
 - **Description:** A hybrid style that offers a sportier, more comfortable feel with a fuller, more substantial cup shape than a classic triangle top.
