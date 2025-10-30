@@ -5,7 +5,7 @@
 - **Description:** This classic style features two wide, extended triangular cups with straps that tie behind the neck and back.
 - **Flattering for:** It is a great option for those with a fuller bust, as it offers extra lift and support while defining the cleavage.
 - **Variations:** Can be found with underwire or padding for additional structure.
-<img src="https://encrypted-tbn3.gstatic.com/licensed-image?q=tbn:ANd9GcQC4rUdD6bacauV41wkS_0B-Ukdr2KVUwo80c2787Zt8sF3PhsBLmDXqlGxGsteANxUMuKVstSjq9e1xQ3GzSpAswlALTEfaR44lsmwHb1Eft_sVwg" height="300">
+<p align item="center"><img src="https://encrypted-tbn3.gstatic.com/licensed-image?q=tbn:ANd9GcQC4rUdD6bacauV41wkS_0B-Ukdr2KVUwo80c2787Zt8sF3PhsBLmDXqlGxGsteANxUMuKVstSjq9e1xQ3GzSpAswlALTEfaR44lsmwHb1Eft_sVwg" height="300"></p>
 
 ### Triangle
 - **Description:** The iconic string bikini, with two sliding triangular cups that tie at the neck and back.
