@@ -27,7 +27,7 @@
 ### Crop top/High-neck
 - **Description:** An athletic-inspired style with more coverage that resembles a crop top or high-neck sports bra.
 - Flattering for: Ideal for active wear, such as surfing or beach volleyball, and offers more sun protection. It is also flattering for athletic or rectangular body types. 
-<p align="center"><img height="300" src=""></p>
+<p align="center"><img height="300" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQS5rKz15FJn9OYaFbC_g4Mc9uURKBKbSZAb7_pAx_xYAFjIMbf-rd_esnnNaCm"></p>
 
 ### Balconette
 - **Description:** Inspired by lingerie, this style features underwire cups with wide-set straps that run horizontally across the breasts to create and accentuate cleavage.
