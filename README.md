@@ -11,7 +11,7 @@
 - **Description:** The iconic string bikini, with two sliding triangular cups that tie at the neck and back.
 - **Flattering for:** Best for smaller to medium busts, offering a natural and classic beach-babe look.
 - **Variations:** Modern versions may include textured fabrics, bolder prints, or ties with embellishments. 
-<p align="center"><img height="300" src="http://googleusercontent.com/image_collection/image_retrieval/16860933881856691023"></p>
+<p align="center"><img height="300" src="https://encrypted-tbn0.gstatic.com/licensed-image?q=tbn:ANd9GcTZ3ufQTR6W550SpofXSYHZknpGhThBHULHjS77FXe6aOAvEIclPHMIrSs6L0fV3VnuCJEiV7VwibFGQrg-TGst3uLb4r48fNmIDzAyTl94NttpJqQ"></p>
 
 ### Bandeau
 - **Description:** A strapless, band-shaped top that runs horizontally across the chest. Many styles come with removable straps for extra support.
