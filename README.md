@@ -37,7 +37,7 @@
 ### Bralette
 - **Description:** A hybrid style that offers a sportier, more comfortable feel with a fuller, more substantial cup shape than a classic triangle top.
 - **Flattering for:** Works well for a wide range of bust sizes, providing a balance of style and function. 
-<p align="center"><img height="300" src="https://essentialsforzula.com/cdn/shop/files/mila_black_essentialsforzula_front_webres_1024x.png?v=1747300615"></p>
+<p align="center"><img height="300" src="https://essentialsforzula.com/cdn/shop/files/carla_bralettebikinitop_leopard_essentialsforzula_Screenshot1333x2000_720x.png?v=1744640975"></p>
 
 ## Bikini bottom styles and cuts
 
